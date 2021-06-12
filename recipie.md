@@ -1,3 +1,5 @@
+INSTRUCTIONS:-
+
 firstly, in a large kadai heat 1 tbsp butter and add vegetables. cook and mash well.
 
 now add 1 tsp chilli powder, 1/4¼ tsp turmeric, 1 tsp pav bhaji masala, 1 tsp kasuri methi and 2 tbsp coriander leaves.
